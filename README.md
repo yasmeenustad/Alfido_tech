@@ -12,3 +12,5 @@ https://github.com/yasmeenustad/Alfido_tech/assets/112754746/bc371f8f-6a21-41d5-
 
 **Task 3: Inventory Analysis Case Study**
 
+https://github.com/yasmeenustad/Alfido_tech/assets/112754746/5715e590-4f26-4401-a000-8db329a21c53
+
